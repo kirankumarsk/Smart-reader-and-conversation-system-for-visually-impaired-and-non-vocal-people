@@ -1,0 +1,1 @@
+# Smart-reader-and-conversation-system-for-visually-impaired-and-non-vocal-people
